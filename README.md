@@ -3,7 +3,7 @@
 
 ## About me
 
-Hello there! My name is Yuri and I'm currently studying IT in a undergraduate diploma course in Brazil.
+Hello there! My name is Yuri and I'm currently studying IT in an undergraduate diploma course in Brazil.
 
 ----
 
